@@ -1,0 +1,1 @@
+In lab se afla laboratoarele 4-8 ca diagrame diferite , numite corsespunzator
